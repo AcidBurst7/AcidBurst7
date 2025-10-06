@@ -49,8 +49,7 @@
 ## 📫 Контакты  
 
 - ✉️ Email: [varaksinaalla@mail.ru](mailto:varaksinaalla@mail.ru)  
-- 📱 Telegram: [@varaksinaalla](https://t.me/varaksinaalla) *(если есть)*  
-- 🌐 LinkedIn / hh.ru *(если решишь добавить)*  
+- 📱 Telegram: [@acidburst][(https://t.me/varaksinaalla)](https://t.me/acidburst)
 
 ---
 ⭐️ Если заглянули сюда — не забудьте посмотреть закреп
